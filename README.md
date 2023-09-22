@@ -1,1 +1,3 @@
-# Yona-Grabber
+☣️ Yona Grabber ☣️
+
+! USE AT EDUCATIONAL PURPOSES ONLY !
